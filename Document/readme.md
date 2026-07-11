@@ -1,1 +1,0 @@
-AI-Powered-Job-Recruitment-Candidate-Management-System
